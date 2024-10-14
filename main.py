@@ -1,1 +1,1 @@
-Скачайте в releases.
+Скачайте в releases, source код недоступен.
